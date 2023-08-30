@@ -1,2 +1,0 @@
-# kanyewest.html
-yayayayaya
